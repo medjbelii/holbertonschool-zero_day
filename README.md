@@ -1,1 +1,1 @@
-read me stupid mudafaka
+read me to get a reward 
